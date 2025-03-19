@@ -1,6 +1,6 @@
 ## 我建了一个telegram公开群组(https://t.me/+E0A2Mesm6OBlNGEx) ,给有chatgpt pro需求的用户提供一个交流场所。
 
-# ChatGPT Pro 拼车方案（官方原价 \$200，现 218 元/月/人）
+# ChatGPT Pro 拼车方案 稳定不降智
 
 ## 1. 简介
 
